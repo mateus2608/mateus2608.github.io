@@ -1,6 +1,5 @@
 🧿 ♍
-
-- 16 anos|🏴‍☠️
-- Cambé/PR|🇧🇷
-- INSTA: @teteubolado_24|📸
-- No terreiro de Iemanjá, saias rendadas brancas|🌊
+- 16 ᴀɴᴏs|🏴‍☠️
+- ᴄᴀᴍʙᴇ/ᴘʀ|🇧🇷
+- ɪɴsᴛᴀ: @ᴛᴇᴛᴇᴜʙᴏʟᴀᴅᴏ_24|📸
+- ɴᴏ ᴛᴇʀʀᴇɪʀᴏ ᴅᴇ ɪᴇᴍᴀɴᴊᴀ, sᴀɪᴀs ʀᴇɴᴅᴀᴅᴀs ʙʀᴀɴᴄᴀs|🌊
